@@ -1,0 +1,1 @@
+# TugasLogikaFuzzy2_E1E120025_Auliyarahmanasdar
